@@ -1,4 +1,4 @@
-# Direccion de Proyectos 2020 - Trendz
+# Sistemas de información gerencial 2020 - Logistics
 
 
 
